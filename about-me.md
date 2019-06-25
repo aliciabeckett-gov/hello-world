@@ -5,5 +5,5 @@
 Hi, I'm Alicia. I'm a Product Manager at *HHS*.
 
 - **Past Companies and Organizations:** Clover Health, Microsoft
-- **Hobbies:**
-- **Favorite Website:** []()
+- **Hobbies:** Salsa and Bachata, Volleyball, Going to the Theater
+- **Favorite Website:** [Youtube](https://youtube.com)
